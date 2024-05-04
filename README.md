@@ -1,1 +1,0 @@
-# Efsanevi-eureka-ya
